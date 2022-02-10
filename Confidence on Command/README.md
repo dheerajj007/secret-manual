@@ -97,19 +97,33 @@ family, friends, movies and all other things.
 Extend your responsibility to your surroundig.
 
 ## Defying Failure
+#### Confidence against failure
+Deal with your success and failure like experiments.<br />
+Deal with errors like information.<br />
+Focus on winning the game in the long run.<br />
 
-###$ Confidence against failure
-#### Write out your life at 80
+
+#### Guess just Write out your life at 80(flexible)
+family - finance - Occupation - Experiences - legacy(how people would remember you) - health
+
 #### Go back to your routine
+As soon as failure strikes, go back and fall in love with routine.
 #### Prepare yourself for the next round
-#### Prototyp Experiments
+Pick yourself up and Lets go...
+#### Prototype Experiments
+Get eventual perspective and start immediate action.
+
 #### Philosophy with Success and Failure
-#### Revisit your faliures
+"Karm Karte Raho Aur Faal Ki Chinta Mat Do".
+#### Revisit your failures and find a way to fit it in your life
+When everything is settled and Write about your failures that still bothers you  and make most of it.
 #### Write down your failures
+Put all the things about failures on paper.
 
 ## Frequently Fcked issues
 
 #### Breaking through negative thought loops
+
 #### Get back up
 #### Dealing with fear and shame
 #### Comparison
