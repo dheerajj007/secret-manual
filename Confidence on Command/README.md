@@ -2,12 +2,12 @@
 
 ## Understanding the basics of Failure
 
-### What is failure?
+#### What is failure?
 Failure is like you had an expectation from engagement but the outcome is disappointing.<br />
 
 Outcome < Expectation = Disappointment
 
-### Deep dive into failure 
+#### Deep dive into failure 
 We sometimes take some failures to our hearts and sometimes take it lightly.
 
 Game start going wrong -> When we attach our identity with a certain engagement.
@@ -16,37 +16,37 @@ Game start going wrong -> When we attach our identity with a certain engagement.
 
 Continious Failure leads to loop of failures and set you to low confidence and low self worth.
 
-### Long term effects of failure
+#### Long term effects of failure
 
 
 
 ## Understanding the basics: Confidence
 
-### Basics
+#### Basics
 Lets say When i will enter a room, i do have a set expectation in my mind of the impression i want from people, (they will like me or) and then Will i be able to pull it off?
 
 Confidence -> Expectation of an Expectation when you are engaging with something.
 The Probability of getting what you expected.
 
 
-### Why Confidence is a game changer?
+#### Why Confidence is a game changer?
 Confidence amplifies you
 
 
-### Confidence and your childhood
+#### Confidence and your childhood
 Turn Adversity into fuel. It is a superpower.
 What happend was no misfortune and you pulled that off is the greatest fortune.
 
 
 ## Batman Utility Belt
 
-### GOAL
-### Writing
-### Adaption
-### Asymmetry of success
-### Anti-Fragility
-### Fear as compass
-### Long term games
+#### GOAL
+#### Writing
+#### Adaption
+#### Asymmetry of success
+#### Anti-Fragility
+#### Fear as compass
+#### Long term games
 
 
 ## Self Confidence Manifesto
@@ -73,40 +73,54 @@ You engage with people and you let people see you. Listen to only those who know
 ## Fighting up from Low Self-Confidence
 
 #### Self diagnosis through writing
+Nobody understands your reality better than you.<br />
+-> Write out where it do come from.
+-> situtaion in which it paralyzises you, if you wouldnt be paralyzied where your life would be
+Explore the epxression of your low confidence.
+
+
 #### Routine
+Establish a general routine with investment non-negotiables. Set a range of hours schdeule.
 #### Make your everyday fun
+Love your everyday process. Make your everyday fun.
 #### Get better at your game
+Getting better at game brings confidence -> can transfer the confidence to other games too.
+#### Make a Win Calender
+Make a new notebook and write one small victory everyday and congratulate yourself about it.
 #### Face your fears
+Make a list of fears and expose yourself incremently in a safe designed environment.
 #### Environmental Design
+Design a environment that encourage you and push you word.
+family, friends, movies and all other things.
+
 #### Take responsibility of your surrounding
+Extend your responsibility to your surroundig.
 
 ## Defying Failure
 
-### Confidence against failure
-### Write out your life at 80
-### Go back to your routine
-### Prepare yourself for the next round
-### Prototyp Experiments
-### Philosophy with Success and Failure
-### Revisit your faliures
-### Write down your failures
+###$ Confidence against failure
+#### Write out your life at 80
+#### Go back to your routine
+#### Prepare yourself for the next round
+#### Prototyp Experiments
+#### Philosophy with Success and Failure
+#### Revisit your faliures
+#### Write down your failures
 
 ## Frequently Fcked issues
 
-### Breaking through negative thought loops
-### Get back up
-### Dealing with fear and shame
-### Comparison
-### How to lift yourself?
-### Long term vs short term
+#### Breaking through negative thought loops
+#### Get back up
+#### Dealing with fear and shame
+#### Comparison
+#### How to lift yourself?
+#### Long term vs short term
 
 ## The Final Chapter
 
-### Intro
-### Fuck this
-### I am a beast and I am hungry
-### The Calm Aggression
-### This ain't a thing
-### Life is a video game
-### Absurdist
-
+#### Fuck this
+#### I am a beast and I am hungry
+#### The Calm Aggression
+#### This ain't a thing
+#### Life is a video game
+#### Absurdist
