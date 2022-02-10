@@ -51,23 +51,34 @@ What happend was no misfortune and you pulled that off is the greatest fortune.
 
 ## Self Confidence Manifesto
 
-### Look good
-### Feel Healthy
-### Make a rough routine
-### Design your environment
-### Consume the right type of content
-### Have and eventual life idea
-### Engage with people around you
+#### Look good
+Wear good clothes and try to look good.
+#### Feel Healthy
+Eating the right food(less sugar). Try 16:8 fasting. Sit in the sun
+Invest in the body.
+#### Make a rough routine
+Have non-negotiables, dont set the every second of the day."Productive rhna h, productivity ke jhol mein nahi fasna."
+
+#### Design your environment
+Make it obvious, oriented towards your future. Optimise your environment. Be around peopel you want to become....
+
+#### Consume the right type of content
+Consume the content that pushes you to think or act in the direction you want to be.
+#### Have an eventual life idea
+Pursue your eventural life and challenge yourself in.
+
+#### Engage with people around you
+You engage with people and you let people see you. Listen to only those who knows their shit, still do what you want to do.
 
 ## Fighting up from Low Self-Confidence
 
-### Self diagnosis through writing
-### Routine
-### Make your everyday fun
-### Get better at your game
-### Face your fears
-### Environmental Design
-### Take responsibility of your surrounding
+#### Self diagnosis through writing
+#### Routine
+#### Make your everyday fun
+#### Get better at your game
+#### Face your fears
+#### Environmental Design
+#### Take responsibility of your surrounding
 
 ## Defying Failure
 
