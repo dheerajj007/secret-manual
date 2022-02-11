@@ -123,18 +123,40 @@ Put all the things about failures on paper.
 ## Frequently Fcked issues
 
 #### Breaking through negative thought loops
-
+Forces yourself to make 
 #### Get back up
+Sympathy of failure is seducing but it doesn't have any charm in long run.<br /> 
+Try to make Getting back up seducing.
 #### Dealing with fear and shame
+Analyse who is holding you back.
+
 #### Comparison
+
+
 #### How to lift yourself?
+
 #### Long term vs short term
 
 ## The Final Chapter
 
 #### Fuck this
+"Bhaad mein jaye na sab, meh tod deta dunga, mein sab phod dunga - doesnt matter what happens. FUCCCK this"
+
 #### I am a beast and I am hungry
+"Koi dikakt hi na h, Chal krke aate h - hum chalu ho gye na toh rond denge"
+
+
 #### The Calm Aggression
+"Yeh toh mein kr hi lunga esme kya h? I have done it thousand times"
+
 #### This ain't a thing
+"Abe yeh toh ho jayega"
+
 #### Life is a video game
+"Yeh toh sab maya h"
+
+
 #### Absurdist
+"Stay Practical and Deal with what's in front of you"
+
+
