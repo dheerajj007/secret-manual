@@ -17,6 +17,7 @@ Game start going wrong -> When we attach our identity with a certain engagement.
 Continious Failure leads to loop of failures and set you to low confidence and low self worth.
 
 #### Long term effects of failure
+You start expecitng less from yourslf and never reach your true potential.
 
 
 
@@ -131,11 +132,14 @@ Try to make Getting back up seducing.
 Analyse who is holding you back.
 
 #### Comparison
+Your opinion of Yourself matters more than the opinion of a stranger.
 
 
 #### How to lift yourself?
+Take Actions and start small.
 
 #### Long term vs short term
+Make one long term goal, break it down into short term goals. Focus on the immediate smaller goals and then forget about the long term goals.
 
 ## The Final Chapter
 
